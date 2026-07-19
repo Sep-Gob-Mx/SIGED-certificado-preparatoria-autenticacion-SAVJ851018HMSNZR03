@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SAVJ851018HMSNZR03
+SAVJ851018HMSNZR03
